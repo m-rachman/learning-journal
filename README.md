@@ -1,4 +1,4 @@
-# learning-journal
+# contoh soal
 
 `The bullet pierced the window shattering it before missing Danny's head by mere millimeters.
 There was no telling what thoughts would come from the machine.
